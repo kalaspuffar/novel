@@ -14,11 +14,21 @@ Everything was still. Amazing, I got to my feet and went to the counter. Lifted 
 
 I lightly tapped her shoulder and in an instance, she was gone. 
 
-- Do you want something more, George? The barista asked.
+-Do you want something more, George? The barista asked.
 
 I turned astonished in a daze, what did he say?
 
-- No, it's okay, did you see her?
-- Yes, she ran out screaming.
+-No, it's okay, did you see her?
+-Yes, she ran out.
 
 That was the first time it happened.
+
+        ***
+
+-How did that make you feel?
+-I was confused, it was such a strange thing to experience. It's one of the things you think never will happen to you.
+-Okay, so how did you experience the situation, Elena?
+
+-Well, my morning was very similar. The morning routine usually starts by some creative writing for a couple of hours and later I do my social duties trying to keep up with my followers. The strange part this morning was that Georgie here just appeared at my side when I was looking for a table.
+
+He didn't seem threatening more dazed staring at me after he dropped his spoon. But he was so still, didn't move for over a minute so I got weirded out and left. I felt that I don't have to stand for this kind of weirdos. There are plenty of good baristas in town.
